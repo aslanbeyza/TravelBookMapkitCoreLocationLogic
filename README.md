@@ -1,2 +1,2 @@
 📍 Annotation ıma bakın cabukk cok tatlıı olduu <br>
-![image](https://github.com/user-attachments/assets/df32f821-a6f7-4af4-9087-346f9244b663)
+https://github.com/user-attachments/assets/3c70bd89-6a86-41bd-a29b-7fe1240254ad
